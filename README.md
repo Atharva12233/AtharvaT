@@ -1,4 +1,4 @@
-- 👋 HI im Atharva TanawadeHi, I’m @Atharva12233
+- 👋 HI im Atharva Tanawade
 - 👀 Im interested in Almost everything ik its hard tk believe but yeah its true.
 - 🌱Currently An Undergrad In MITCOE PUNE
 - 💞️ I’m looking to collaborate on ANYTHING 
