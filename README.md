@@ -1,5 +1,5 @@
 - 👋 HI im Atharva Tanawade
-- 👀 Im interested in Almost everything ik its hard to believe but yeah its true.
+- 👀 Im interested in many things such as coding,music,travelling and many more 
 - 🌱Currently An Undergrad In MITCOE PUNE
 ✅ I’m looking to collaborate on ANYTHING 
 - 📫 How to reach me tanawadeatharva@gmail.com
